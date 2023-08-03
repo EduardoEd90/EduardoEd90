@@ -14,7 +14,6 @@ Meu nome é Eduardo Soares Leite
 
   ![](https://media.tenor.com/ZbHK-fPsFfAAAAAC/black-clover.gif)
 
-  ![](https://media.tenor.com/teBMDzHy04oAAAAC/jojo-bizarre.gif)
 
-  ![](https://media.tenor.com/u4zVSsvvQRkAAAAC/gorilla-hand-it-over.gif)
+  
  
